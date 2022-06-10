@@ -1,1 +1,0 @@
-# yigitcanyilmaz.github.io
